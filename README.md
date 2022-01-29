@@ -1,3 +1,10 @@
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%2336BCF7&lines=hello%2C+world+%F0%9F%91%8B;i'm+rawaz+....)](https://git.io/typing-svg)
+
+
+
+
+
+
 ## Connect with me:
 <p align="left">
 
